@@ -1,0 +1,1 @@
+# NamekMaster.github.io
